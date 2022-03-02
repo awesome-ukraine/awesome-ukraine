@@ -14,3 +14,22 @@ Make your minimal commitment to a peaceful future:
 
 ## Mechanical Engineering
 * I miss about [Mria 😞](https://en.wikipedia.org/wiki/Antonov_An-225_Mriya)
+
+## Music
+
+## Science
+
+## Inventions and innovations
+
+## Landmarks
+
+## Historical places 
+
+## Sports
+
+## Cities
+
+## Art
+
+## People
+- Zelenskiy is the Mr. Balls of Steel (https://www.reuters.com/world/europe/ukraine-wont-respond-provocations-zelenskiy-says-2022-02-19/)
