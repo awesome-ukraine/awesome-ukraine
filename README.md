@@ -10,4 +10,7 @@ Make your minimal commitment to a peaceful future:
 3. Commit your loved thing of Ukraine in any creative way and pull request
 
 ## Food
-My favorite meal is [Ukrainian Borsch](https://www.unian.ua/lite/holidays/borshch-recept-recept-ukrajinskogo-chervonogo-borshchu-10976501.html) 🇳🇱
+* My favorite meal is [Ukrainian Borsch](https://www.unian.ua/lite/holidays/borshch-recept-recept-ukrajinskogo-chervonogo-borshchu-10976501.html) 
+
+## Mechanical Engineering
+* I miss about [Mria 😞](https://en.wikipedia.org/wiki/Antonov_An-225_Mriya)
