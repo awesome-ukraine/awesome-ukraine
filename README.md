@@ -32,4 +32,4 @@ Make your minimal commitment to a peaceful future:
 ## Art
 
 ## People
-- Zelenskiy is the Mr. Balls of Steel (https://www.reuters.com/world/europe/ukraine-wont-respond-provocations-zelenskiy-says-2022-02-19/)
+- [Zelenskiy is the Mr. Balls of Steel](https://www.reuters.com/world/europe/ukraine-wont-respond-provocations-zelenskiy-says-2022-02-19/)
