@@ -16,6 +16,7 @@ Make your minimal commitment to a peaceful future:
 * I miss about [Mria 😞](https://en.wikipedia.org/wiki/Antonov_An-225_Mriya)
 
 ## Music
+* [Song For Peace](https://www.youtube.com/watch?v=P_1VsBWA8-c) my Manuel Fernandes released on 27.02.2022.
 
 ## Science
 
