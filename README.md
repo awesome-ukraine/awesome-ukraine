@@ -32,11 +32,11 @@ Make your minimal commitment to a peaceful future:
 
 ## Historical places
 
-- [Kyiv](https://en.wikipedia.org/wiki/Kyiv) - one of the oldest historical centers of Western Europe and Christianity - St. Sophia Cathedral and the Kiev Pechersk Lavra have been inscribed on the UNESCO World Heritage List
-
 ## Sports
 
 ## Cities
+
+- [Kyiv](https://en.wikipedia.org/wiki/Kyiv) - one of the oldest historical centers of Western Europe and Christianity - St. Sophia Cathedral and the Kiev Pechersk Lavra have been inscribed on the UNESCO World Heritage List
 
 ## Art
 
