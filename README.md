@@ -10,6 +10,10 @@ Make your minimal commitment to a peaceful future:
 2. Make fork
 3. Commit your loved thing of Ukraine in any creative way and pull request
 
+## Freedom
+
+- I love that I can tell my opinion, what I really think without any censor.
+
 ## Food
 
 - My favorite meal is [Ukrainian Borsch](https://www.unian.ua/lite/holidays/borshch-recept-recept-ukrajinskogo-chervonogo-borshchu-10976501.html)
@@ -43,4 +47,5 @@ Make your minimal commitment to a peaceful future:
 
 ## People
 
+- Our people are brave and wonderful. We gather to protect our freedom from any danger ([Orange Revolution](https://en.wikipedia.org/wiki/Orange_Revolution), [Revolution of Dignity](https://en.wikipedia.org/wiki/Revolution_of_Dignity), [Russian invasion of Ukraine](https://en.wikipedia.org/wiki/2022_Russian_invasion_of_Ukraine))
 - [Zelenskiy is the Mr. Balls of Steel](https://www.reuters.com/world/europe/ukraine-wont-respond-provocations-zelenskiy-says-2022-02-19/)
