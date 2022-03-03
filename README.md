@@ -45,7 +45,17 @@ Make your minimal commitment to a peaceful future:
 
 ## Art
 
+ - [Maria Prymachenko paintings](https://g.co/kgs/AunRVq)
+
 ## People
 
 - Our people are brave and wonderful. We gather to protect our freedom from any danger ([Orange Revolution](https://en.wikipedia.org/wiki/Orange_Revolution), [Revolution of Dignity](https://en.wikipedia.org/wiki/Revolution_of_Dignity), [Russian invasion of Ukraine](https://en.wikipedia.org/wiki/2022_Russian_invasion_of_Ukraine))
 - [Zelenskiy is the Mr. Balls of Steel](https://www.reuters.com/world/europe/ukraine-wont-respond-provocations-zelenskiy-says-2022-02-19/)
+
+## 5 ways to support Ukraine
+
+1. [Sign the petition](https://www.openpetition.eu/petition/online/people-around-the-world-ask-nato-to-close-the-airspace-over-ukraine) to NATO to close the sky above Ukraine
+2. [Donate to the Ukrainian army](https://forbes.ua/ru/inside/pomoch-ukrainskoy-armii-scheta-na-kotorye-mozhno-otpravit-vznosy-s-territorii-ukrainy-i-iz-za-rubezha-27022022-3970)
+3. Deliver humanitarian help
+4. Follow Ukraine’s President or other independent sources to read reliable news - https://www.instagram.com/meduzapro/
+5. Join a protest in your city
