@@ -10,6 +10,10 @@ Make your minimal commitment to a peaceful future:
 2. Make fork
 3. Commit your loved thing of Ukraine in any creative way and pull request
 
+## Freedom
+
+- I love that I can tell my opinion, what I really think without any censor.
+
 ## Food
 
 - My favorite meal is [Ukrainian Borsch](https://www.unian.ua/lite/holidays/borshch-recept-recept-ukrajinskogo-chervonogo-borshchu-10976501.html)
