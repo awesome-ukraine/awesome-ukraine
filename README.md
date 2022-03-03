@@ -22,13 +22,17 @@ Make your minimal commitment to a peaceful future:
 
 ## Science
 
+- [Novinano](https://www.novinano.com/) - explores and develops key-technologies for innovative nanostructure applications for a wide-range of industries
+
+- [Maryna Viazovska](https://en.wikipedia.org/wiki/Maryna_Viazovska) - solved the sphere-packing problem in dimension 8 and, in collaboration with others, in dimension 24. Previously, the problem had been solved only for three or fewer dimensions, and the proof of the three-dimensional version (the Kepler conjecture) involved long computer calculations. In contrast, Viazovska's proof for 8 and 24 dimensions is "stunningly simple".
+
 ## Inventions and innovations
 
 ## Landmarks
 
 ## Historical places
 
-- [Kyiv](https://en.wikipedia.org/wiki/Kyiv) - one of the oldest historical centers of Western Europe and Christianity - St. Sophia Cathedral and the Kiev Pechersk Lavra have been inscribed on the UNESCO World Heritage List.
+- [Kyiv](https://en.wikipedia.org/wiki/Kyiv) - one of the oldest historical centers of Western Europe and Christianity - St. Sophia Cathedral and the Kiev Pechersk Lavra have been inscribed on the UNESCO World Heritage List
 
 ## Sports
 
